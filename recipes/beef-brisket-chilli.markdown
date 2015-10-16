@@ -17,7 +17,7 @@ I adapted Jamie Oliver's recipe, my version contains smokey ingredients that Jam
 * 1 heaped teaspoon Dried Oregano
 * 2 fresh Bay Leaves
 * 1 large Red Onions, peeled and diced
-* 1 fresh Chillies
+* 1 fresh chilli
 * 2 Cinnamon Bark pieces
 * 3 large Cloves of Garlic, peeled and finely sliced
 * 1 x 400 g tins of Chopped Tomatoes
